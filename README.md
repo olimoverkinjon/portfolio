@@ -1,0 +1,2 @@
+# portfolio
+o'zim haqimda
